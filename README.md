@@ -1,6 +1,4 @@
-# Cylne
-
-Pfp - Made / Drawn by me
+# Cylne Pfp - Made / Drawn by me
 
 ⋆✴︎˚｡⋆ I am a minor ⋆✴︎˚｡⋆ 
 
